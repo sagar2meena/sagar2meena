@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sagar Meena
 - 👀 I’m interested in coding and AI and ML
-- 🌱 I’m currently learning Lakshmi narain college of technology Bhopal
+- 🌱 I’m currently learning in  Lakshmi narain college of technology Bhopal
 - 💞️ I’m looking to collaborate to a person who want's to create an interesting project
 - 📫 How to reach me sagarmeena20032002@gmail.com
 
